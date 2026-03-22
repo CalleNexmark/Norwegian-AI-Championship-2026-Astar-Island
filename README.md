@@ -1,0 +1,1 @@
+# Norwegian-AI-Championship-2026-Astar-Island
